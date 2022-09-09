@@ -3,4 +3,4 @@
 - 👀 I’m interested in Tech Support, Web Development & Designs, L1NuX, ERP Consults and pY+#0^
 - 🌱 I’m currently learning Python and JavaScript
 - 💞️ I’m looking to collaborate on ERP with Odoo
-- 📫 How to reach me https://t.me/hellobukeze, WhatsApp - +2348136156690
+- 📫 How to reach me https://t.me/bukeze, WhatsApp - +2348136156690
